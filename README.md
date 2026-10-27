@@ -11,10 +11,10 @@ my attention and leave a lasting impression.
 
 ## WHAT I LOVE
 
-- **Storylines** — unexpected twists and creative plots
-- **Characters** — unique personalities and growth
-- **Cinematography** — beautiful visuals and aesthetics
-- **Soundtracks** — music that makes every scene memorable
+- *Storylines* — unexpected twists and creative plots
+- *Characters* — unique personalities and growth
+- *Cinematography* — beautiful visuals and aesthetics
+- *Soundtracks* — music that makes every scene memorable
 
 ---
 
